@@ -2,7 +2,7 @@
 All materials of my youtube courses
 
 
-My Channal Link: https://www.youtube.com/c/AbdallaFadl/playlists
+My Channal Link : https://www.youtube.com/c/AbdallaFadl/playlists
 
 Flowchart Playlist : https://www.youtube.com/playlist?list=PLu9xARoolRsY-_Quxgieu9JZImOmNRdFI
 
