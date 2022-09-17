@@ -4,7 +4,7 @@ All materials of my youtube courses
 
 My Channal Link : https://www.youtube.com/c/AbdallaFadl/playlists
 
-* Flowchart Playlist : https://www.youtube.com/playlist?list=PLu9xARoolRsY-_Quxgieu9JZImOmNRdFI
+* Flowchart : https://www.youtube.com/playlist?list=PLu9xARoolRsY-_Quxgieu9JZImOmNRdFI
 
 * Intro to CS ( CS111 ) : https://www.youtube.com/playlist?list=PLu9xARoolRsaYPZERDhJkSdWfOyoJ85qT
 
